@@ -1,7 +1,8 @@
-![](https://files.catbox.moe/56lukv.png)
-<img src="https://komarev.com/ghpvc/?username=kurtzzworld96-username&color=57e8f3&style=round&label=Demigods!&abreviated=true">
+<img width="1500" height="304" alt="image" src="https://github.com/user-attachments/assets/a3f356a0-efbf-4d39-9da5-f77d8a726aa7" />
 
- ![](https://i.pinimg.com/736x/d7/28/6e/d7286e794895ea462d0b013a2cda7865.jpg)
+<img src="https://komarev.com/ghpvc/?username=kurtzzworld96-username&color=fbabb2&style=round&label=clericdan+shippers!&abreviated=true">
+
+ ![](https://i.pinimg.com/736x/7a/21/82/7a2182f5bbba7486db8ddd3e58d03e4d.jpg)
 ## <p align="center" >𝒂𝒃𝒐𝒖𝒕 𝒎𝒘𝒆!</p>
 <p align="center"> 𝓶𝓲𝓶𝓲 ' 𝓟𝓮𝓻𝓬𝔂 ' 𝓻𝓲𝓬𝓱𝓲𝓮! </p>
 <p align="center"> 6𝓽𝓮𝓮𝓷 ' 5𝓽𝓮𝓮𝓷 + 𝓯𝓮𝓶 𝓸𝓻𝓼 𝓶𝓪𝓵𝓮!
@@ -13,14 +14,15 @@
 
 
   
-![](https://files.catbox.moe/56lukv.png)
+<img width="1500" height="304" alt="image" src="https://github.com/user-attachments/assets/cbc36af3-31b9-46a2-97f9-3fa747414140" />
 
 
 
 
-![](https://i.pinimg.com/736x/4d/ee/58/4dee5891bef4fa90d8083fe6c7eb2bc1.jpg)
+
+![](https://i.pinimg.com/736x/cb/28/4a/cb284a73e60d0b21279983ff37e9bae5.jpg)
 ## <p align="center" > 𝓑𝓪𝓲𝓲!!</p>
 
-![](https://media.tenor.com/F9-2BNmylDgAAAAM/percy-jackson-anaklusmos.gif)
+![](https://i.pinimg.com/736x/f7/b4/28/f7b428d6ab0e9f736c5b520f9484985e.jpg)
 
-![](https://files.catbox.moe/56lukv.png)
+<img width="1500" height="304" alt="image" src="https://github.com/user-attachments/assets/e26680fd-becf-483f-bbef-4f3807397100" />
